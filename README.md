@@ -1,1 +1,0 @@
-# Abreme-desde-el-ordenador
